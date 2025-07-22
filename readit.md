@@ -1,17 +1,17 @@
 ## Why
 
-- To spent life easily inshallah.
+- To ........
 
-- To fulfill dreams inshallah.
+- To ..........
 
-- To get a good life inshallah.
+- To ...........
 
 ## If not
 
-- The life could harder
+- The ...........
 
-- The dreams are heavy, can't fulfil
+- The ................
 
-- Life could be hard
+- L......................
 
-- I could waste my time
+- I .........................
